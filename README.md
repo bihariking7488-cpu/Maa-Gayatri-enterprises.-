@@ -1,1 +1,0 @@
-# Maa-Gayatri-enterprises.-
